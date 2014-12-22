@@ -38,249 +38,272 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The actes of Englysh votaryes comprehendynge their vnchast practyses and examples by all ages, from 
+
+1. ❧ The preface of thys boke.
+
 #####Body#####
 
-1. ¶Marryage instytuted of God.
+1. The Actes of
+Englysh votaryes, comprehendynge
+their vnchast practyses and examples
+by all ages, from the worldes
+begynnynge to thys present yeare,
+collected out of their owne legendes
+and Chronycles
+By Iohan Bale.
 
-1. ¶Marryage contempned of Sathan.
+    _ ¶Marryage instytuted of God.
 
-1. ¶Marryage of Prestes in both
+    _ ¶Marryage contempned of Sathan.
+
+    _ ¶Marryage of Prestes in both
 lawes.
 
-1. ¶Englande inhabyted afore Noe
+    _ ¶Englande inhabyted afore Noe
 and after.
 
-1. ¶Albion with hys Samothytes.
+    _ ¶Albion with hys Samothytes.
 
-1. ¶The Samothytes and their
+    _ ¶The Samothytes and their
 chastyte.
 
-1. ¶Brute with hys Druydes.
+    _ ¶Brute with hys Druydes.
 
-1. ¶The Druydes and their
+    _ ¶The Druydes and their
 chastyte.
 
-1. ¶Prestes marryed and vnmarryed.
+    _ ¶Prestes marryed and vnmarryed.
 
-1. ¶Christ alloweth marryage in hys.
+    _ ¶Christ alloweth marryage in hys.
 
-1. The Apostles & fyrst preachers marryed
+    _ The Apostles & fyrst preachers marryed
 
-1. Brytayne first conuerted by mē maryed.
+    _ Brytayne first conuerted by mē maryed.
 
-1. ¶Christyanyte somwhat corrupted.
+    _ ¶Christyanyte somwhat corrupted.
 
-1. ¶The first sprynge of monkerye in
+    _ ¶The first sprynge of monkerye in
 Brytayne.
 
-1. ¶Heresye in Brytayne aryseth of
+    _ ¶Heresye in Brytayne aryseth of
 monkerye.
 
-1. ¶A prestes sonne was Saynt Partrick.
+    _ ¶A prestes sonne was Saynt Partrick.
 
-1. ¶Sayntes were begottē in whordome.
+    _ ¶Sayntes were begottē in whordome.
 
-1. ¶Lyke examples are amonge the
+    _ ¶Lyke examples are amonge the
 Turkes.
 
-1. ¶More Sayntes yet begotten in
+    _ ¶More Sayntes yet begotten in
 whoredome
 
-1. ¶Whoredome estemed most holynesse.
+    _ ¶Whoredome estemed most holynesse.
 
-1. ¶Women greuouse and solacyouse.
+    _ ¶Women greuouse and solacyouse.
 
-1. ¶A spirytuall example of a votarye.
+    _ ¶A spirytuall example of a votarye.
 
-1. ¶Vrsula with her sort, appoynted to
+    _ ¶Vrsula with her sort, appoynted to
 marrye.
 
-1. ¶An historye to their ghostlye purpose.
+    _ ¶An historye to their ghostlye purpose.
 
-1. ¶Fyne workemanshyp to be marked,
+    _ ¶Fyne workemanshyp to be marked,
 
-1. ¶Vowynges ded not yet constrayne.
+    _ ¶Vowynges ded not yet constrayne.
 
-1. ¶The Saxons entre with newe
+    _ ¶The Saxons entre with newe
 Christyanyte.
 
-1. ¶More Englysh boyes solde at
+    _ ¶More Englysh boyes solde at
 Rome.
 
-1. ¶Augustyne entreth with hys Mōkes
+    _ ¶Augustyne entreth with hys Mōkes
 
-1. ¶Their first spirytuall prouysyons
+    _ ¶Their first spirytuall prouysyons
 here.
 
-1. ¶Their preparacyons for Antichrist,
+    _ ¶Their preparacyons for Antichrist,
 
-1. ¶The prouynge of Augustynes
+    _ ¶The prouynge of Augustynes
 Apostleship.
 
-1. ¶The Englysh churche begynneth
+    _ ¶The Englysh churche begynneth
 with tyrannye.
 
-1. ¶What the Brytayne churche was
+    _ ¶What the Brytayne churche was
 afore.
 
-1. ¶Antichrist approched fast to hys
+    _ ¶Antichrist approched fast to hys
 full age.
 
-1. ¶The chastyte of hys masmongers.
+    _ ¶The chastyte of hys masmongers.
 
-1. ¶Contempt of marryage, with
+    _ ¶Contempt of marryage, with
 tayles.
 
-1. ¶Stryfe aboute the Eastre celebracyon.
+    _ ¶Stryfe aboute the Eastre celebracyon.
 
-1. ¶Great busynesse for their other
+    _ ¶Great busynesse for their other
 tradycyons.
 
-1. ¶Relygyouse examples dysuadynge
+    _ ¶Relygyouse examples dysuadynge
 marryage.
 
-1. ¶Other relygyouse examples of
+    _ ¶Other relygyouse examples of
 that age.
 
-1. ¶The wanton toyes of the holye
+    _ ¶The wanton toyes of the holye
 fathers.
 
-1. The ghostly bestowynge of their vowes
+    _ The ghostly bestowynge of their vowes
 
-1. ¶Erkenwalde and Osith, with their
+    _ ¶Erkenwalde and Osith, with their
 Nondryes.
 
-1. ¶The perfyght age of the Beast.
+    _ ¶The perfyght age of the Beast.
 
-1. ¶For the varyaunce had in supputaciōs
+    _ ¶For the varyaunce had in supputaciōs
 
-1. ¶Sealynges to the Beastes obedyence
+    _ ¶Sealynges to the Beastes obedyence
 
-1. ¶More sealynges yet to Antichristes
+    _ ¶More sealynges yet to Antichristes
 
 kingedome.
 
-1. ¶Chastyte, Monkes, Monasteryes,
+    _ ¶Chastyte, Monkes, Monasteryes,
 and Penaunce.
 
-1. ¶The foundacyon of their Purgatorye.
+    _ ¶The foundacyon of their Purgatorye.
 
-1. ¶Chastyte of Cuthbert and doctryne
+    _ ¶Chastyte of Cuthbert and doctryne
 of Colfride.
 
-1. ¶The fallen starre, and .ij. Hornes of
+    _ ¶The fallen starre, and .ij. Hornes of
 the Beast.
 
-1. ¶The fall of kyngedoms, and rayse
+    _ ¶The fall of kyngedoms, and rayse
 of the Papacye.
 
-1. ¶An olde prophecye of Merlyne
+    _ ¶An olde prophecye of Merlyne
 dysclosed.
 
-1. ¶The whores fleshe eaten of the x.
+    _ ¶The whores fleshe eaten of the x.
 hornes.
 
-1. ¶Actes of vowed virgynyte for that
+    _ ¶Actes of vowed virgynyte for that
 age.
 
-1. ¶A spirytuall conueyaunce to be
+    _ ¶A spirytuall conueyaunce to be
 marked.
 
-1. ¶Kynges became pylgrymes, and
+    _ ¶Kynges became pylgrymes, and
 their wyues Nonnes.
 
-1. ¶Great experymentes of virgynyte.
+    _ ¶Great experymentes of virgynyte.
 
-1. ¶Images admytted, with chast
+    _ ¶Images admytted, with chast
 examples.
 
-1. ¶Englysh monkes become Antichristes
+    _ ¶Englysh monkes become Antichristes
 Apostles.
 
-1. ¶The great Apostle
+    _ ¶The great Apostle
 of all Germanye.
 
-1. ¶Doctryne of Bonyface, with sale
+    _ ¶Doctryne of Bonyface, with sale
 of whores.
 
-1. ¶The monasteryes of fulda & floryake.
+    _ ¶The monasteryes of fulda & floryake.
 
-1. ¶Oxforde shurned. And Aleuinus
+    _ ¶Oxforde shurned. And Aleuinus
 monkes.
 
-1. ¶Englyshe men ponnyshed at Rome.
+    _ ¶Englyshe men ponnyshed at Rome.
 
-1. ¶Popes chosen from thens fourth
+    _ ¶Popes chosen from thens fourth
 by their. N.
 
-1. ¶Holye water, with a boke agaynst
+    _ ¶Holye water, with a boke agaynst
 marryage.
 
-1. ¶Miracles and wonders
+    _ ¶Miracles and wonders
 wrought.
 
-1. ¶Monkerye augmented by Dunstane.
+    _ ¶Monkerye augmented by Dunstane.
 
-1. The relygyouse Occupyenge of
+    _ The relygyouse Occupyenge of
 Dunstane.
 
-1. ¶He vexeth kynge Edwyne, retaynynge
+    _ ¶He vexeth kynge Edwyne, retaynynge
 hys concubyne.
 
-1. ¶Dunstane kepeth the Kynges of
+    _ ¶Dunstane kepeth the Kynges of
 Englande vndre.
 
-1. ¶The chastyte of holye churche there.
+    _ ¶The chastyte of holye churche there.
 
-1. ¶A popes bastarde ys made pope
+    _ ¶A popes bastarde ys made pope
 
-1. ¶Dunstanes autoryte agaynst marryed
+    _ ¶Dunstanes autoryte agaynst marryed
 prestes.
 
-1. ¶Dunstane executeth hys deuylyshe
+    _ ¶Dunstane executeth hys deuylyshe
 commyssyon.
 
-1. ¶Kynge Edgare ys brought vndre
+    _ ¶Kynge Edgare ys brought vndre
 therby.
 
-1. ¶Dunstane fashyoneth the kynge
+    _ ¶Dunstane fashyoneth the kynge
 to hys purpose.
 
-1. ¶Kynges become th Beastes
+    _ ¶Kynges become th Beastes
 Images.
 
-1. ¶Dunstane ys accused of yll rule.
+    _ ¶Dunstane ys accused of yll rule.
 
-1. ¶The kynge defendeth Dunstane &
+    _ ¶The kynge defendeth Dunstane &
 destroyeth wolues.
 
-1. ¶Oswalde with hys Beastlye
+    _ ¶Oswalde with hys Beastlye
 autoryte.
 
-1. ¶Dunstane maketh a Kynge at hys
+    _ ¶Dunstane maketh a Kynge at hys
 pleasure.
 
-1. ¶Dunstane maketh an Idoll to
+    _ ¶Dunstane maketh an Idoll to
 speake.
 
-1. ¶That Idoll ys crowned Kynge of
+    _ ¶That Idoll ys crowned Kynge of
 Englande.
 
-1. ¶An example of Claustrall
+    _ ¶An example of Claustrall
 virgynyte.
 
-1. ¶Dunstane dysputeth with sorcerye
+    _ ¶Dunstane dysputeth with sorcerye
 and murther.
 
-1. ¶Dunstanes prouysyon in Englande
+    _ ¶Dunstanes prouysyon in Englande
 for Sathan.
 
-1. ¶Sygnes and plages folowynge
+    _ ¶Sygnes and plages folowynge
 these myschefes.
 
+1. ¶The Conclusyon
+of thys fyrst boke.
+
+1. ¶The Autours
+names both Englyshe
+and other, out of whom thys
+present Boke ys collected.
+The holye Gost shall rebuke the worlde
+of synne, and of ryghtousnesse, and of
+iudgement.Ioan. 16.Int
 #####Back#####
-The actes of Englysh votaryes comprehendynge their vnchast practyses and examples by all ages, from 
+❧ Printed at Wesel In the Yeare
+Of our Lorde God.
+1. 5. 4. 6.
 **Types of content**
 
   * There are 7 **verse** lines!
